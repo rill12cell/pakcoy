@@ -1,2 +1,2 @@
 # pakcoy
-live in indonesia and that'mean i was clever
+live in indonesia with a good heart
